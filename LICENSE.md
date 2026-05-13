@@ -1,4 +1,4 @@
-#  
+#  Notion for macOS smart Plugin: collaboration & database templates offers the most advanced Notion for macOS plugin, with collaboration and database templates. Ideal for
 
 
 
